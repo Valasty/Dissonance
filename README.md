@@ -1,1 +1,1 @@
-# DissonanceJRPG
+# contact: valasty@hotmail.com
